@@ -1,4 +1,4 @@
-### Hi there 👋! My name is Kirill Dudchenko 🐉
+### Hi there 👋!
 
 #### I am:
 
